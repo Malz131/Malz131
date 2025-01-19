@@ -1,4 +1,4 @@
-- ☆Hi, I’m @Malz131-Maloney Mkize
+- ☆Hi, I’m @Malz131 -Maloney Mkize
 - ☆I’m currently learning Java and Linux.
 - ☆I’m looking to collaborate on various projects.
 - ☆How to reach me maloneymkize13@gmail.com or 27036448@sun.ac.za
